@@ -1,1 +1,0 @@
-# technical-assignment-week-5-SEKAR-SARI-RAMADHANTI
